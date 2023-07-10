@@ -1,8 +1,1 @@
-Jika semua kata pintar hanya untuk orang yang jago dalam coding,
-maka aku tak sanggup tuk bersanding dengan kata itu...
-
-Jika orang bertepuk tangan untuk orang yang bisa melukis algoritma yang indah,
-maka tak akan ada yang akan bertepuk tangan padaku...
-
-Jika semua mata orang selalu tertuju pada orang yang dapat diandalkan dalam menyelesaikan masalah pemrograman,
-maka tak akan ada yang akan melihat ku...
+Lu punya duit, lu punya kuasa
