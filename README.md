@@ -1,1 +1,1 @@
-Lu punya duit, lu punya kuasa
+Ga jago, tapi kalo bantu bantu dikit bisalah
